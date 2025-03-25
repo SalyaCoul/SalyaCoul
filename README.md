@@ -8,7 +8,7 @@
     - I can help you to write a resume, prepare an interview, or get better at them! Just shoot me an email with "coaching" in the object.
 - 📫 How to reach me
     - [linkedin](https://www.linkedin.com/in/salyacoulibaly/)
-    - [mail]([scoulibaly@eleven-labs.com](url))
+    - [mail]([salyacoul@gmail.com](url))
 
 
 <!---
